@@ -1,0 +1,1 @@
+# buatt-kamuu-semogaa-kamuu-sukaa-yaa
